@@ -6,6 +6,13 @@
 
 ---
 
+## 🌐 App Store Link
+
+🔗 **Download:**  
+https://apps.apple.com/vn/app/shock-coffee-stay-alert/id6755634233
+
+---
+
 ## 🔥 App Highlights
 
 - 🚀 **Wake up instantly** with sound + light stimulation.  
